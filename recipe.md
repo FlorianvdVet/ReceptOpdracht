@@ -9,5 +9,5 @@
 * 2 tbsp tamari
 * pinch smoked paprika
 * 0.5 tsp salt
-* pinch of black pepper
+* pinch black pepper
 * basil leaves
